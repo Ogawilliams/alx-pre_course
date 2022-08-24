@@ -1,1 +1,1 @@
-My first readme
+New updates available check how to follow
